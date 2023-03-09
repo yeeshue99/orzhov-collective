@@ -1,0 +1,2 @@
+- Her real name is Brianna Huxley, and she was once her predecessor’s most brutal enforcer. While she now seems almost pacifist, there’s no doubt that she could dip back into her old tactics. (Only known by [[Katarina]])
+- The Rosaline Briar Soup Kitchen, despite claiming to be fully legal, actually is supported by robbery, blackmail, and shakedowns. (Secret to the public, but known by all [[_Council Members|Council Members]])

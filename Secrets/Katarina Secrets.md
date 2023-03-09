@@ -1,0 +1,1 @@
+- Katarina is a Changeling, who presents as Human. She keeps this knowledge as close to the chest as possible. As such, she can imitate anyone. She has a couple of other changelings in her employ to help facilitate her schemes when they require an airtight case. (Known to no one at the moment)
