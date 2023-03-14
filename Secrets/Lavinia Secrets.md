@@ -1,0 +1,2 @@
+- Despite her reputation as a necromancer, Lavinia derives most of her abilities from magical items, rather than innate power. (Known by all [[_Council Members|Council Members]])
+- One of the most notable examples of this is a ring that makes her appear for all intents and purposes as Undead, with only extremely powerful divination magic able to pierce that veil. (Known to no one at the moment)

@@ -1,4 +1,5 @@
-- [[Rosaline Briar Secrets]]
 - [[Katarina Secrets]]
+- [[Lavinia Secrets]]
 - [[Qadir Secrets]]
+- [[Rosaline Briar Secrets]]
 - [[Vitale Morov Secrets]]

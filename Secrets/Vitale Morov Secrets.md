@@ -1,0 +1,2 @@
+- Perhaps to no one's surprise, Vitale has not just one deal but multiple deals with various demons. How he has been able to stay on top of all them is a bit of a miracle, but Vitale often has to perform strange requests outside of his usual expertise to cover some of them. 
+- He tries to keep it under wraps, but it's heavily suspected he has a deal with at least one demon. The secret is just how many he has cut deals with.

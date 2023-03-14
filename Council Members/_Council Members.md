@@ -1,4 +1,5 @@
 - [[Katarina]]
+- [[Lavinia Mantione]]
 - [[Qadir]]
 - [[Rosaline Briar]]
 - [[Vitale Morov]]
