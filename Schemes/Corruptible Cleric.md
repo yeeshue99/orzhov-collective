@@ -2,11 +2,11 @@
 
 **Resources Spent**: 1 Treasury, 2 Rresource ([[Qadir]])
 
-**Result**: Resounding success, [[Katarina]] gains 1 influence.
+**Result**: Resounding success, [[Katarina Carminova]] gains 1 influence.
 **Description:** Katarina's Information Network uncovered several candidates that could be recruited or convinced to join the Syndicate.
 1. **Dimakos** - Tiefling - High enough level cleric to cast Raise Dead & Revivify - Willing to work with us - for a cost. His divine power comes from faith in a dark deity (Tharizdun, Tiamat, etc). He's heard of the Rambling Dragon and Qadir's entry trial. He once thought about joining the group, but decided against it because he's afraid of the trial. But when approached with an offer that would let him bypass the trial restrictions, he jumped at the chance. a. Point of Contact: Qadir's group 
 2. **Ashia Yinnorin** - Human - High enough level cleric to cast Raise Dead & Revivify - Her faith comes from one of the popular common deities to the area (Pelor, for example). Her daughter has an illness that requires a very specific herb in order to manage it. She currently gets it from a more reputable source, but that source is currently having pipeline issues. (This is how she got on our radar.) The Orzhov Syndicate previously caused those pipeline issues by branching out into that market. We've offered her a deal where we supply the herb at a significantly reduced cost regularly, but she is required to be on call for us. 
 
 **Point of Contact:** Ronan Steelvale, a male human in Katarina's Information Network. Katarina doesn't believe in putting everything into one basket so she's reached out to Ashia while giving Dimakos to Qadir. Dimakos is the primary cleric for the Orzhov, while Ashia is on standby when Katarina needs her services to be discreet, even from the other Council Members.
 
-[[Katarina]] [[Qadir]]
+[[Katarina Carminova]] [[Qadir]]

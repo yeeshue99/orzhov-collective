@@ -1,4 +1,4 @@
-- [[Katarina]]
+- [[Katarina Carminova]]
 - [[Lavinia Mantione]]
 - [[Qadir]]
 - [[Rosaline Briar]]
