@@ -1,0 +1,3 @@
+**Description**: Lavinia has declared it time for the Black Night, when her undead will stalk the streets after dark, collecting on all her outstanding loans. Debtors will find zombies at their doorsteps in the middle of the night, with simple notes attached demanding payment. Those who refuse will be taken back to her and killed, only to be raised and added to her ranks.
+
+**Resources Spent**: 2 Rresource ([[Lavinia Mantione]])

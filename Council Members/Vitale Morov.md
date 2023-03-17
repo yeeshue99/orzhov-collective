@@ -1,4 +1,4 @@
-![[Morov.png|300]]
+	![[Morov.png|300]]
 
 **Focus**: Scams 
 **Influence**: 2 
