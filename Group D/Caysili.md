@@ -1,0 +1,8 @@
+- Was taught magic by a witch
+- Said witch actually kidnapped Caysili, and performed experiments on and then brain washed her
+- Has a great curiousity for knowledge, and wants to grow stronger and learn more about magic and her own powers
+- Has realized that her memories were altered and hates the witch who kidnapped her
+- Had a falling out with her real family when she said she wanted to go back to school as opposed to staying home
+- Questioned the "True Magic" toted by [[Ayaana Ashira]], to which Aya gave Caysili a research notebook with redacted information that is stamped as property of the University.
+- Caysili was pretty satisfied with this
+- After Aya demonstrated her power to the party, Caysili accepted

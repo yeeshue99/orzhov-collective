@@ -1,0 +1,8 @@
+- Ayaana comes from a long line of prodigious and powerful mages
+- However, one of her ancestors began researching True Magic
+- The University banned its research, and her ancestor was outcast from magical society for unknown reasons
+- Ever since, her family has fallen into poverty.
+- She hides her family line, and pretends to be a young, promising student from a poor background.
+- She has a very wide information network, consisting of information gatherers and her own magic powers, but only really cares about the comings and goings of the University.
+- As a result, she knows the background and actions of every member of the party, as well as just about ever student and faculty member.
+- 

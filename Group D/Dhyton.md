@@ -1,0 +1,12 @@
+- Loves learning and reading, constantly has their nose in a book but due to lack of friends and social relationships, he doesn’t have the full ability to apply his knowledge and comes off as incredibly awkward to others
+- Had to travel mostly on his own and explore many forests, therefore foraging from the land and eventually growing a tough stomach from eating essentially… anything
+- Bad people skills, terrible at reading people’s energies and takes jokes, sarcasm, and riddles incredibly literally. His level of humour is essentially reading terrible puns from a poorly written joke book, completely monotone with no pause for suspense or banter.
+- grew up in an unnurturing family, large lack of friends or any close companions, was bullied for his awkwardness and “nerdiness”, which led to him having a large lack in social skills, but a desire to befriend those who gave him a chance.
+- chose to leave his village at a relatively young age as he decided there was something worth more out there for him. His general sense of curiosity and exploration eventually led him to the feywild, where they took him in willingly, as he was open to working and performing mundane tasks for them in exchange for shelter.
+- while staying in the feywild, he took the opportunity to study through their collected libraries, constantly reading when not performing chores (this led to his intelligence, but because of his lack of experience through the general world he has little knowledge on how to actually apply his research, stumbling over relatively simple instructions at times)
+- despite being let into a small circle of fey, Dhyton still didn’t necessarily get along with his companions, often feeling left out and not understanding the fey’s jokes and mischief. He was kept around for his nonabrasive attitude and willingness to help without the return of favours.
+- As soon as Dhyton reached 18, he knew he wanted to continue his learning at a college, explaining to the fey that if he would one day return to continue helping for their generosity (they didn’t really care though honestly).
+- Dhyton’s main goal at the university is not only to continue his learning, but to make friends! He is so lonely! Like seriously, so alone.
+
+- I think Dhyton was the first person to accept the robes. Unsure as to the exact reason why
+- However, Aya promised him that after joining, he would be among a close knit group of family and friends

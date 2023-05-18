@@ -1,0 +1,10 @@
+- Single mom, abject poverty in a big city (don’t worry, the mom is perfectly fine)
+- Stole the necklace a few years ago, which seemed to make someone (or something) aware of his presence
+- A series of “coincidences” began shortly after, all of which followed by a shadowy figure in the corner of his eye.
+- If he tried to follow the figure, it always lead to an empty dead end.
+- His family’s luck began to turn for the better through these mysterious circumstances, though he has the sinking feeling it comes with strings attached.
+- Eventually, he was given a full-ride scholarship to Strixhaven, despite never having applied. As he finished reading his letter, he looked up, and for a split second, he saw a shadowy figure in the window.
+- First off, her name is Valra. She was a teen mom, her parents disowned her when they found out she was pregnant, and her boyfriend left her to avoid responsibility.
+- She’s very sweet, but eternally exhausted. She’s battling depression, but she’s improving. She’d previously given up hope for a better life, but with the way her and Vidar’s luck has been turning, she’s actually been able to improve things for herself—she currently has a job at a local general store, but has shakily begun to dream of opening her own bookstore one day.
+- She hates spending money on anything more than the basic necessities, and saves every copper coin she can for a rainy day.
+- Vidar accepted the Cult robes for an unknown reason

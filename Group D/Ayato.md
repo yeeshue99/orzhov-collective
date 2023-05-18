@@ -1,0 +1,5 @@
+- Took out a decently sized loan to get him and his sister into Strixhaven
+- Also arranged for a fake "hit" where his sister would rob a really rich guy and would steal just enough money to get them to school
+- Would do just about anything for his sister
+- Has a little boy crush on Cadoras, another student
+- Stepped forward to join the cult for unknown reasons
